@@ -1,2 +1,0 @@
-# ProjectKurogen
-Projeto pro RP
